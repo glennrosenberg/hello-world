@@ -12,5 +12,4 @@ Played and coached
 - Basketball
 - Ice Hockey
 - Short Track Speed Skating
-Current
-- Social road cyclist
+- Social road cyclist (Current)
